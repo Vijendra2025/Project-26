@@ -1,0 +1,1 @@
+Origins. Gulab jamun was first prepared in medieval Iran and was derived from a fritter that Central Asian Turkic conquerors brought to India. ... Jamun is also defined as a fried delicacy in sugar syrup. The Arab dessert luqmat al-qadi is similar to gulab jamun, although it uses a different batter.
